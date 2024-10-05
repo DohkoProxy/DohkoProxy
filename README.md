@@ -2,7 +2,7 @@
 - 👋 Hi, I’m @DohkoProxy
 - 👀 I’m interested in games, tech, RPGs and Space!!
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on ... idk
+- 💞️ I want to collaborate with awesome people and projects
 - 📫 dayvison.ff@gmail.com
 - 😄 Pronouns: i don´t care
 - ⚡ Fun fact: Vending machines kill more people than sharks each year
