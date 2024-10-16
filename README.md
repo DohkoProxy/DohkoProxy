@@ -1,8 +1,12 @@
  
   Hi, I’m @Dayvison
+  
   I’m interestoed in games, tech, RPGs and Space!!
+  
   I’m currently learning Python
+  
   I want to collaborate with awesome people and projects
+  
   dayvison.ff@gmail.com
 
  
